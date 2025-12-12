@@ -137,22 +137,28 @@ Jam pauca nobis addenda sunt de cultu lapidum apud alios praeter hos quos commem
 Invictum lapis hic reddit quemcunque gerentem,  
 Extinguitque sitim patientis in ore receptus.
 
-Alias lapis serpentinus victoriam parans praedicatur in
-poëmate Vindobon. cod. quod Grimm l. c. s. 632. laudat:
-„ich höre von den steinen sagen, daz grôze tugent daran lige,
-die natern und kroten tragen, swer sie habe, der gesige.“
-Lapis, quem dicunt „siegstein“ commemoratur Otnit 558.
-559. et Vilkinasag. cap. 96. cui aequalis est alius „wün-
-schelstein“ apud Basile pentamerone 4. 1. Similes lapides
-mirifici in carminibus epicis saepe ob viam currunt. Bri-
-tanni etiamnunc lapidibus quibusdam „holedstones“ sive
-„holystones“ dictis, i. e. saxis cavatis vires salutares attri-
-buunt. Jam Edda Saemund. 137b similis amuleti „Jarknas“
-dicti mentionem facit, qui idem esse dicitur, quem in co-
-rona imperatoris Romani immissum orphanum sive pupil-
-lum vocant scriptores medii aevi. De lapidum cultu in
-Germania septentrionali vid. Conringii antiqq. stat. Helm-
-stad. --- Wormii monument. dan. lib. 1. cap. 4. --- Trogill.
-Arnkiel, cymbrisches heydenthum s. 223. --- Joann. Pickardt,
+Alias lapis serpentinus victoriam parans praedicatur in poëmate Vindobon. cod. quod Grimm l. c. s. 632. laudat: „ich höre von den steinen sagen, daz grôze tugent daran lige, die natern und kroten tragen, swer sie habe, der gesige.“ Lapis, quem dicunt „siegstein“ commemoratur Otnit 558. 559. et Vilkinasag. cap. 96. cui aequalis est alius „wünschelstein“ apud Basile pentamerone 4. 1. Similes lapides mirifici in carminibus epicis saepe ob viam currunt. Britanni etiamnunc lapidibus quibusdam „holedstones“ sive „holystones“ dictis, i. e. saxis cavatis vires salutares attribuunt. Jam Edda Saemund. 137b similis amuleti „Jarknas“ dicti mentionem facit, qui idem esse dicitur, quem in corona imperatoris Romani immissum orphanum sive pupillum vocant scriptores medii aevi. De lapidum cultu in Germania septentrionali vid. Conringii antiqq. stat. Helmstad. --- Wormii monument. dan. lib. 1. cap. 4. --- Trogill. Arnkiel, cymbrisches heydenthum s. 223. --- Joann. Pickardt, korte beschryvinge van eenige verborgene antiquiteten s. 23. Jusjurandum dederunt „at ursvoelum unnar steini“ et „at enom hvîta helga steini“ Edda Saem. 165a. 237b. --- Aërolithos, quos dicunt „donnerkeile“ Dithmarsi hodie quoque venerantur et asservant, v. Müllenhof schleswigsche volksagen no. 480. --- Montem Lusaticum Czornebog dictum urbi Budissin vicinum, cujus alterum latus „prasica“ appellatur ab oraculis petitis, comparare licet cum Romana illa „bocca della verità“ quam supra laudavimus, nec non cum saxo loquente Celtico, quem vocant „Llech-Llavar“ et cum rupe mirabili Druidarum in insula Mona sita, cui nomen est „Maen Mordhwyd“ de quibus vid. Mones europäisches heidenthum 2. s. 457. Quid quod in fabulis Christianis mirae res de lapidibus narrentur? In historia fabulari de Sancto Graali lapis exillix commemoratur, qui e corona Luciferi in terram cecidisse et postea in ciborium eucharistiae commutatus esse dicitur, quod hodie etiam Genovae ostenditur, „il sacro catino“ dictum. --- Simillimae mythorum Graecorum et Indicorum sunt innumerae paene fabulae de gigantibus, qui lapidescunt, quorum sua quaeque gens monumenta in aeternam memoriam conservat et posteris tradit. De nominibus gentium urbiumque a litholatria ductis jam antea disseruimus.
+
+Haec habui, quae de nomine et cultu baetylorum dicerem: quibus pertractatis restat, de origine et causis litholatriae disserere, sententiasque hominum eruditorum sub examen vocare. Quantum, idque gravissime peccatum sit in explicandis quum Graecorum et Romanorum, tum ceterarum gentium fabulis, ut ab antiquis ita maxime ab hodiernis scriptoribus, quis est qui nesciat? Quali licentiae, quam permulti viri docti jure reprehenderunt, et in narranda et in explicanda de baetylis fabula ob viam occurramus, mox videbimus. Haud minimam culpae partem attribuendam esse mythographis nostris, symbolicis qui dicuntur scriptoribus, inter omnes constat. Des Brosses, du culte des Dieux fétiches, recte animadvertit: „le système du sens figuré une fois admis, on y voit facilement tout ce que l'on veut, comme dans les nuages.“ Certe: media tutissimus ibis! --- Exstiterunt permulti interpretes, in quos egregium illud Goethianum cadat: „Ihr legt nicht aus, ihr legt hinein.“ --- Sunt qui in explicandis atque adumbrandis fabulis antiquis unam solam viam sequi studeant, quos in eo, quod ipsi justum ac verum habebant, saepius valde errasse videmus: qui steriles herbas eligentes hortum repurgent, eodemque tempore triticum evellant: vel quorum studia ac labores culturae prosint, ac simul plantas parasiticas foveant. A pluribus interpretandi rationibus opem solam poscendam esse existimo, nec in eorum numero haberi volo, qui praeconceptis opinionibus atque immaturo examine ad rem tractandam accedant. Friedrich August Wolf, vorlesungen über encyclopädie der philologie, herausg. v. Stockmann, Leipz. 1831. s. 235: „keine einzige quelle kann so sein, dass man alles in der mythologie aus ihr erklären könnte; vielmehr muss bei jeder mythischen erzählung darauf gesehen werden, welcher art, ob sie historisch, physicalisch, astronomisch oder moralisch ist.“ --- Notissima sunt somnia mythologica Euhemeristarum inter Graecos, inter Germaniae septentrionalis rerum scriptores Saxonis Grammatici, quorum dei atque heroes deposita veste mythica habitum suum permutant, ut jam non fabulas, sed res gestas infiniti regum numeri legere credamus. Artem hermeneuticam sive enarrationem fabularum, quas ab antiquis accepimus, hypotheses paene fama spoliasse, satis cognitum est. Ne nimis procul a veritate aberremus, id inprimis persuasum habeamus necesse est, omnes fabulas ab una origine derivari non posse: et quanquam in omnibus, quas jam collectas in medium proferemus, opinionibus hominum eruditorum de origine et causis cultus baetylorum plus minusve inesse veri, negari non potest, tamen ne una quidem de hoc argumento sententia rem acu tetigisse videtur.
+
+Inter eos, qui cultum lapidum sanctorum ex sola fe-
+tissorum religione tamquam ex primitiva explicare student,
+maxime des Brosses l. c. hanc suam sententiam urget, quem
+magna ex parte secuti sunt Zoëga, Muenter, Dalberg, alii;
+qui quanquam id non absque eruditione praestiterunt, as-
+sensum tamen in omnibus vix ac ne vix quidem meren-
+tur. Fetissismus, qui dicitur, est cultus numinum rudis-
+simus ac brutissimus, qualem etiamnunc multae vel plu-
+rimae Africae interioris aeque ac Americae et Siberiae
+gentes fovent, quae qualibuscunque rebus modo utilibus
+modo nocivis, truncis, sagittis, cippis, lapidibus, innume-
+ris ceteris honorem divinum perhibent. „Fetisso“ est vox
+portugallica, quamcumque rem incantatam denotans, cujus
+etymon a latino verbo: fari, duci solet. Des Brosses, du
+culte des Dieux fétiches (Berlin) 1763. primus hoc voca-
+bulo usus esse dicitur, quod Winterbottom in account of
+the native Africans of Sierra Leona tom. 1. pag. 99. a voce
+portugallica: feticeira, h. e. incantatrix, derivare mavult;
+in qua etymologia nihil novi inest. Equidem inveni in
 
 ...
